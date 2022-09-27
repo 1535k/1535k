@@ -1,3 +1,3 @@
 # yassss
 
-Im seriously gonna blow up i cant do this anymore how do u add a template im gonna DIE
+idk anymore! we have a quiz tommorrow tho heart eyes emoji
