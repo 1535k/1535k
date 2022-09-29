@@ -15,3 +15,4 @@ Batman (The Dark Knight)
 
 Tony Stark (Iron Man)
 
+### Now that you have some examples, I'll explain why they are <i> the </i> best characters:
