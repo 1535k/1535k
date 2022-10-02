@@ -15,7 +15,8 @@ Batman (The Dark Knight)
 
 Tony Stark (Iron Man)
 
-### Now that you have some examples, I'll explain why they are <i> the </i> best characters:
+### Now that you have some examples, I'll explain why they are the best characters:
 
-Morally gray characters are appealing because they represent most real people. It makes the character seem more realistic and sketched-out instead of a hero whose only personality trait is to save civilians and put the bad guys in jail. Don't you find yourself frustrated when a hero continuously fights the same villain and defeats them, yet they can't seem to finish them off? Not only that, but those types of characters are just like perfect angels. On the other hand, a character that seems pure evil is also disgusting.
+Morally gray characters are appealing because they represent most real people. It makes the character seem more realistic and sketched-out instead of a hero whose only personality trait is to save civilians and put the bad guys in jail. Don't you find yourself frustrated when a hero continuously fights the same villain and defeats them, yet they can't seem to finish them off? Not only that, but those types of characters are just like perfect angels. Characters that seem to be completely good or completely evil are boring! They are 2d. Well-made characters who have more than one side to them are entertaining. It makes you want to know more about them. 
 
+Say that a character makes a decision that you can't wrap your head around. <i> "Aren't they kind of evil, though? Why did they help that kid?" </i> Doesn't it make you want to know more about them? It makes them unpredictable, makes you sit at the edge of your seat to see what they do next. Not to mention, they basically represent reality. It's easy to connect and sympathize with them more than it is to sympathize with someone like Superman.
